@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @novemberaerospace
-- 👀 I’m interested in girls
+- 👀 I’m interested in not verry much think at the moment
+- 
 - 🌱 I’m currently learning aerodynamique
 - 💞️ I’m looking to collaborate on long lasting nacelle 
 - 📫 How to reach me @novemberaerospace
